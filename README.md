@@ -2,6 +2,7 @@
 
 
 welcome to my profile
+Estou estudando [alura](https://www.alura.com.,br)
 
 Meu nome é kauan gabriel da silva
 
