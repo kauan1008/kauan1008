@@ -10,4 +10,4 @@ Sou aluno do primeiro 1B
 ### para entrar em contato:
 kauan.gabriel.silva10escola.pr.gov.br
 
-![](https://media1.tenor.com/m/6tspb2b8WNIAAAAC/tim%C3%A3o-coring%C3%A3o.gif)
+![](https://media1.tenor.com/m/HC-LQzxxlqgAAAAC/ney-neymar.gif)
